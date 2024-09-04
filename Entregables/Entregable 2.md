@@ -19,7 +19,7 @@
 >[![2.jpg](https://i.postimg.cc/d1FD6Fnv/2.jpg)](https://postimg.cc/cKDs1VV5)
 >
 > # **Propuesta de solución**
-> 
+> [![Image from Gyazo](https://i.gyazo.com/3142c6b374d169ae2b6f9f2e2ce68e7e.png)](https://gyazo.com/3142c6b374d169ae2b6f9f2e2ce68e7e)
 > 
 > 
 
